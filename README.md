@@ -8,6 +8,6 @@ I SEE YOUR WHIP HILARIOUS
 
 \*\*if you can see this in the main branch, that means the feature readme has been merged
 
-_doggy doggy... woof woof branch_
+this is the main branch
 
-such a long time... ive been waiting ive been waiting for a long time
+runaway but we're runnin in circless... runaway... runaway... runawaaayyy
